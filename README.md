@@ -1,2 +1,0 @@
-# Tinkoff
-Investiscii
